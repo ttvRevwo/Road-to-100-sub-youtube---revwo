@@ -1,2 +1,2 @@
-# Road-to-100-sub-youtube---revwo
+# Road-to-100-sub-youtube -> revwo
 Igen.
